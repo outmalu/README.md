@@ -6,5 +6,9 @@
 
 # Hi there，I'm outmalu 	🪐
 
-- Open source is something I'm interested in.
-- Artificial intelligence is an area I'm focusing on right now.
+Im interesed in
+- astronomy
+- physics
+- design
+
+## welcome to my profile! 
