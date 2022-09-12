@@ -11,7 +11,7 @@ Im interesed in
 - physics
 - design
 
-Im Experienced in
+Im experienced in
 - adobe illustrator
 - adobe photoshop
 - adobe premiere
