@@ -11,4 +11,14 @@ Im interesed in
 - physics
 - design
 
+Im Experienced in
+- adobe illustrator
+- adobe photoshop
+- adobe premiere
+- adobe after effects
+- adobe indesign
+- office 365
+
+
+
 ## welcome to my profile! 
